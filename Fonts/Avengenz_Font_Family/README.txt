@@ -1,0 +1,3 @@
+To learn more about the font family and its license, visit https://www.fontmirror.com/avengenz
+
+Avengenz: A bold, sans-serif font exuding power and rebellion.  Its thick, assertive strokes command attention, hinting at a dark, gritty aesthetic. Perfect for titles, logos, or anything needing an edgy, uncompromising presence.  The stark simplicity amplifies its impact, a visual shout heard across the page.
